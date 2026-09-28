@@ -96,7 +96,7 @@ Cloud & DevOps
 ## 📫 Let's connect
 
 💼 **LinkedIn:**
-[linkedin.com/in/ayoub-quamar-23ab79247](https://www.linkedin.com/in/ayoub-quamar-23ab79247/)
+[linkedin.com/in/ayoub-quamar-23ab79247](https://www.linkedin.com/in/ayoub-q-23ab79247/)
 
 📍 Rennes, France
 
